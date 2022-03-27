@@ -14,6 +14,6 @@ zarrah, niscaya dia akan melihat
 (balasan)nya,
 
 contact owner :
-wa.me/601136151330 (Owner)
+wa.me/6285759662798 (Owner)
 `
 }
